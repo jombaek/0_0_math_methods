@@ -1,0 +1,1 @@
+https://imcs.dvfu.ru/cats/?f=problems;cid=5445703;sid=yA6DfhY9pIFKlE8W4Xd4N5XhSckkHq
